@@ -1,2 +1,2 @@
 # CODSOFT
-For all intershuips at Codsoft
+For all interships at Codsoft
